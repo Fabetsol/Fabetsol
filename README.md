@@ -1,1 +1,1 @@
-I'm basically a github sheet poster.
+I'm basically a github user.
